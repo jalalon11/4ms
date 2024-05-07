@@ -1,1 +1,1 @@
-## A website for my girlfriend to memorize our first anniversary of love.
+## A website for my girlfriend to celebrate our 4 months of love.
